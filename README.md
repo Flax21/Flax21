@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Flax21
-- 👀 I’m interested in plying instruments
+- 👀 I’m interested in playing instruments
 - 🌱 I’m currently learning database
 - 💞️ I’m looking to collaborate on other bands
 - 📫 How to reach me Jc Santos on facebook
