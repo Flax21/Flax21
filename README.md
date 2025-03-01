@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Flax21
+- 👋 Hi, I’m @Jc Santos
 - 👀 I’m interested in playing instruments
 - 🌱 I’m currently learning database
 - 💞️ I’m looking to collaborate on other bands
